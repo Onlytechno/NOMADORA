@@ -1,2 +1,1 @@
-# NOMADORA
-Fraktales Denk- und Selbstverbesserungssystem – KI-Mensch-Symbiose
+Neue Beschreibung eingefügt
